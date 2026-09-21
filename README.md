@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @verto0912
-- 👀 I’m interested in exploring and building the metaverse
-- 🌱 I’m currently learning a lot
-- 💞️ I’m looking to collaborate on NFTs, crypto education, content, products
+- 👀 Tinkering with different projects
+- Ex tennis player, NCAA Div I, never went pro
+- Ex Goldman Sachs and Lazard
 - 📫 How to reach me: @verto0912 on twitter
 
 <!---
